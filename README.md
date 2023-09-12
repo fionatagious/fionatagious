@@ -1,5 +1,5 @@
-Hi! 👋 I’m a software engineer, writer, & community organizer.
+Hi! 👋 I’m a software engineer & community organizer.
 
-💬 I’m looking to collaborate on: climate action, civic tech, social impact projects, data viz/journalism\
-📫 How to reach me: tang.fiona@protonmail.com\
+💬 I’m looking to collaborate on: climate action, civic tech, public interest and social impact projects
+📫 How to reach me: fionatang@alum.berkeley.edu\
 😄 Pronouns: she/her
